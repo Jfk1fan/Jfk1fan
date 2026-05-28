@@ -1,16 +1,17 @@
-## Hi there 👋
+Hi hello hey 
 
-<!--
-**Jfk1fan/Jfk1fan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm gonna write the most idiotic things on here and info about me 
 
-Here are some ideas to get you started:
+My pronouns are she/her but I don't mind being called a he/him or they/them 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+My interests is probably just history and American history.... Maybe...Maybe..
+
+My Hobbies are drawing and playing ponytown. It's usually playing ponytown but you'll also see me drawing while I play ponytown
+
+People who should stay far far far away from me : predators, proshippers, homophobes, Confederate supporters, fascists, n@zis..and rasicts
+
+anyone not in the stay far away from me list should a bazillion percent should interact with me with no doubt
+
+Stupid idiotic things that I promised to share
+
+I am probably not John F Kennedy reincarnated. OK goodbye have a great day I'm gonna take some shut eye
