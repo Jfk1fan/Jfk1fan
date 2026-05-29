@@ -14,4 +14,4 @@ anyone not in the stay far away from me list should a bazillion percent should i
 
 Stupid idiotic things that I promised to share
 
-I am probably not John F Kennedy reincarnated. OK goodbye have a great day I'm gonna take some shut eye
+I am probably not John F Kennedy reincarnated. Or maybe I am John F Kennedy reincarnated hmmm. Ok goodbye have a great day I'm gonna take some shut eye
