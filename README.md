@@ -23,6 +23,6 @@ I am probably not John F Kennedy reincarnated. Or maybe I am John F Kennedy rein
 https://github.com/user-attachments/assets/81a29ff3-b3a3-469e-9d0c-4d946361c18a
 
 
-https://github.com/user-attachments/assets/ca2c9cca-6525-4fd6-aace-3c6390a1cb6d
+https://github.com/user-attachments/assets/91dd61c9-4057-4947-a4e1-b368c171f807
 
-IM NOT INSANE I SWEAR 
+
