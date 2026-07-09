@@ -24,7 +24,3 @@ https://github.com/user-attachments/assets/81a29ff3-b3a3-469e-9d0c-4d946361c18a
 
 
 https://github.com/user-attachments/assets/91dd61c9-4057-4947-a4e1-b368c171f807
-
-My unfinished drawing ok.. 
-<img width="1000" height="1000" alt="1000055127" src="https://github.com/user-attachments/assets/d86e80ca-3842-4cc3-890a-45bb3360e94b" />
-
