@@ -32,8 +32,3 @@ https://github.com/user-attachments/assets/1eae993c-65a3-4a16-9736-de787637d8ef
 
 https://github.com/user-attachments/assets/881545d4-2a1c-45de-8b2f-3ed5f8f684ca
 
-
-
-<img width="2048" height="2048" alt="1000056870" src="https://github.com/user-attachments/assets/1763581a-e933-4f33-b70d-e3a843e4da44" />
-
-My little potato baby #tryingtonotpillowshade
