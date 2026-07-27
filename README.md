@@ -32,4 +32,5 @@ https://github.com/user-attachments/assets/1eae993c-65a3-4a16-9736-de787637d8ef
 
 https://github.com/user-attachments/assets/881545d4-2a1c-45de-8b2f-3ed5f8f684ca
 
-<img width="2063" height="2963" alt="1000057107" src="https://github.com/user-attachments/assets/29e5e855-a11a-4ffa-862b-0da2b3be04c6" />
+<img width="99" height="56" alt="1000057300" src="https://github.com/user-attachments/assets/6f7d221e-199d-42f3-8a70-6d5c8250583b" />
+Say hi kerry
