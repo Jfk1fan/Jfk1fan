@@ -28,9 +28,13 @@ https://github.com/user-attachments/assets/91dd61c9-4057-4947-a4e1-b368c171f807
 
 https://github.com/user-attachments/assets/1eae993c-65a3-4a16-9736-de787637d8ef
 
-
-
 https://github.com/user-attachments/assets/881545d4-2a1c-45de-8b2f-3ed5f8f684ca
+
+
+
+https://github.com/user-attachments/assets/73d39304-9cec-4e79-a153-dc6e9dba7ba2
+
+Incoming animation!!! Yeehaw
 
 <img width="658" height="488" alt="1000057336" src="https://github.com/user-attachments/assets/58cda45a-6009-4507-9749-b850b076a559" />
 
