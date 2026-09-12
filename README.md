@@ -36,6 +36,12 @@ https://github.com/user-attachments/assets/37e5d7d3-dc3a-4faf-9799-17ddc8afa061
 
 Pretend that the last animation wasn't there
 
+
+
+https://github.com/user-attachments/assets/5e6ee850-b91b-42a0-b26c-a06e094dac5d
+
+You have to slow it down to 0.75 ok
+
 <img width="658" height="488" alt="1000057336" src="https://github.com/user-attachments/assets/58cda45a-6009-4507-9749-b850b076a559" />
 
 
