@@ -52,4 +52,6 @@ Say hi kerry
 If I'm wearing this pony remember I DONT support the pr0 tree
 
 <img width="150" height="20" alt="1000062423" src="https://github.com/user-attachments/assets/3a4e5099-a0eb-4d85-9d51-2fbc5b45d48e" />
-Thank you gorg for this JFK blinkie :angel emoji:
+<img width="150" height="20" alt="1000062424" src="https://github.com/user-attachments/assets/9d99cb19-452d-440b-bf9b-a0e5971f5cc6" />
+
+Thank you gorg for these JFK blinkie :angel emoji:
