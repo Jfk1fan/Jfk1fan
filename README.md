@@ -55,3 +55,6 @@ If I'm wearing this pony remember I DONT support the pr0 tree
 <img width="150" height="20" alt="1000062424" src="https://github.com/user-attachments/assets/9d99cb19-452d-440b-bf9b-a0e5971f5cc6" />
 
 Thank you gorg for these JFK blinkie :angel emoji:
+
+![1000063144](https://github.com/user-attachments/assets/e7004ef1-63dc-4e29-8504-0610ff9a98cf)
+Here's the stupid drawing.. Sigh 
