@@ -58,3 +58,5 @@ Thank you gorg for these JFK blinkie :angel emoji:
 
 ![1000063144](https://github.com/user-attachments/assets/e7004ef1-63dc-4e29-8504-0610ff9a98cf)
 Here's the stupid drawing.. Sigh 
+
+<img width="4080" height="3060" alt="1000063517" src="https://github.com/user-attachments/assets/b7f8d15c-9df0-4ab3-b540-ba19f579d61e" />
