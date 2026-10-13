@@ -42,8 +42,14 @@ https://github.com/user-attachments/assets/5e6ee850-b91b-42a0-b26c-a06e094dac5d
 
 You have to slow it down to 0.75 ok
 
-<img width="658" height="488" alt="1000057336" src="https://github.com/user-attachments/assets/58cda45a-6009-4507-9749-b850b076a559" />
 
+
+https://github.com/user-attachments/assets/cde09766-4118-40fc-a63d-647d05a049e0
+
+
+
+<img width="658" height="488" alt="1000057336" src="https://github.com/user-attachments/assets/58cda45a-6009-4507-9749-b850b076a559" />
+I'm sorry that alot of my animations are black and white, I don't really have any motivation to color
 
 <img width="99" height="56" alt="1000057300" src="https://github.com/user-attachments/assets/6f7d221e-199d-42f3-8a70-6d5c8250583b" />
 Say hi kerry
@@ -54,11 +60,7 @@ If I'm wearing this pony remember I DONT support the pr0 tree
 <img width="150" height="20" alt="1000062423" src="https://github.com/user-attachments/assets/3a4e5099-a0eb-4d85-9d51-2fbc5b45d48e" />
 <img width="150" height="20" alt="1000062424" src="https://github.com/user-attachments/assets/9d99cb19-452d-440b-bf9b-a0e5971f5cc6" />
 
-Thank you gorg for these JFK blinkie :angel emoji:
+Thank you gorg for these JFK blinkies :angel emoji:
 
 ![1000063144](https://github.com/user-attachments/assets/e7004ef1-63dc-4e29-8504-0610ff9a98cf)
 Here's the stupid drawing.. Sigh 
-
-<img width="3060" height="4080" alt="1000064107" src="https://github.com/user-attachments/assets/05715238-be2f-42dc-9073-df881f40e243" />
-<img width="3060" height="4080" alt="1000064110" src="https://github.com/user-attachments/assets/0df6ecdf-cefd-4b43-b31c-84d0ebad87fb" />
-Teddy Roosevelts
