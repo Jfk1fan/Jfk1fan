@@ -46,16 +46,12 @@ You have to slow it down to 0.75 ok
 
 https://github.com/user-attachments/assets/cde09766-4118-40fc-a63d-647d05a049e0
 
-
+I'm sorry that alot of my animations are black and white, I don't really have any motivation to color             
 
 <img width="658" height="488" alt="1000057336" src="https://github.com/user-attachments/assets/58cda45a-6009-4507-9749-b850b076a559" />
-I'm sorry that alot of my animations are black and white, I don't really have any motivation to color
 
 <img width="99" height="56" alt="1000057300" src="https://github.com/user-attachments/assets/6f7d221e-199d-42f3-8a70-6d5c8250583b" />
 Say hi kerry
-
-<img width="208" height="264" alt="1000059802" src="https://github.com/user-attachments/assets/f6d6842b-a0ed-4cb6-b6a5-037e35cc8bfa" />
-If I'm wearing this pony remember I DONT support the pr0 tree
 
 <img width="150" height="20" alt="1000062423" src="https://github.com/user-attachments/assets/3a4e5099-a0eb-4d85-9d51-2fbc5b45d48e" />
 <img width="150" height="20" alt="1000062424" src="https://github.com/user-attachments/assets/9d99cb19-452d-440b-bf9b-a0e5971f5cc6" />
