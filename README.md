@@ -48,6 +48,11 @@ https://github.com/user-attachments/assets/cde09766-4118-40fc-a63d-647d05a049e0
 
 I'm sorry that alot of my animations are black and white, I don't really have any motivation to color             
 
+
+https://github.com/user-attachments/assets/b7ce6f30-52ca-4c4c-9459-768f7f1e12a7
+
+
+
 <img width="658" height="488" alt="1000057336" src="https://github.com/user-attachments/assets/58cda45a-6009-4507-9749-b850b076a559" />
 
 <img width="99" height="56" alt="1000057300" src="https://github.com/user-attachments/assets/6f7d221e-199d-42f3-8a70-6d5c8250583b" />
@@ -58,5 +63,4 @@ Say hi kerry
 
 Thank you gorg for these JFK blinkies :angel emoji:
 
-![1000063144](https://github.com/user-attachments/assets/e7004ef1-63dc-4e29-8504-0610ff9a98cf)
-Here's the stupid drawing.. Sigh 
+
