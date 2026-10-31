@@ -50,7 +50,7 @@ I'm sorry that alot of my animations are black and white, I don't really have an
 
 
 https://github.com/user-attachments/assets/b7ce6f30-52ca-4c4c-9459-768f7f1e12a7
-
+If you have headphones on, I reckon you should take them off
 
 
 <img width="658" height="488" alt="1000057336" src="https://github.com/user-attachments/assets/58cda45a-6009-4507-9749-b850b076a559" />
