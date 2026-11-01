@@ -54,6 +54,11 @@ https://github.com/user-attachments/assets/b7ce6f30-52ca-4c4c-9459-768f7f1e12a7
 If you have headphones on, I reckon you should take them off
 
 
+
+https://github.com/user-attachments/assets/2e324ccd-fcc1-4247-aa01-9a8212a277e5
+
+A colored animation finally 
+
 <img width="658" height="488" alt="1000057336" src="https://github.com/user-attachments/assets/58cda45a-6009-4507-9749-b850b076a559" />
 
 <img width="99" height="56" alt="1000057300" src="https://github.com/user-attachments/assets/6f7d221e-199d-42f3-8a70-6d5c8250583b" />
