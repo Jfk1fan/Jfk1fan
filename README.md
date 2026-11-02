@@ -59,6 +59,14 @@ https://github.com/user-attachments/assets/2e324ccd-fcc1-4247-aa01-9a8212a277e5
 
 A colored animation finally 
 
+
+
+
+https://github.com/user-attachments/assets/a1932db5-47ca-4f2a-8ab1-c2c2bc5bbf7e
+
+The last animation used all of our budget sorry
+
+
 <img width="658" height="488" alt="1000057336" src="https://github.com/user-attachments/assets/58cda45a-6009-4507-9749-b850b076a559" />
 
 <img width="99" height="56" alt="1000057300" src="https://github.com/user-attachments/assets/6f7d221e-199d-42f3-8a70-6d5c8250583b" />
