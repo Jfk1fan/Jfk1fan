@@ -69,6 +69,7 @@ The last animation used all of our budget sorry
 
 
 https://github.com/user-attachments/assets/e2c12f7f-9bfb-4a91-a532-47795b5955c2
+
 I'll make a colored animation soon, I swear guys puhuhuhuhuuu
 
 
